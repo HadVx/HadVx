@@ -17,7 +17,7 @@
 
 2️⃣ Пошта kozakandriy331@gmail.com
 
-3️⃣ Резюме [robota.ua](https://robota.ua/my/resumes/24702136)
+3️⃣ Резюме [robota ua](https://robota.ua/my/resumes/24702136)
 
-4️⃣ Резюме [work_ua](https://www.work.ua/jobseeker/my/resumes/view/?id=14488999)
+4️⃣ Резюме [work ua](https://www.work.ua/jobseeker/my/resumes/view/?id=14488999)
 ### :loudspeaker:Відкритий до будь-яких аналітичних remote пропозицій!
